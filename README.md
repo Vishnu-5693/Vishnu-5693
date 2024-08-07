@@ -2,7 +2,7 @@
 - 👀 I’m interested in space technology and coding
 - 🌱 I’m currently learning AI and Robotics
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ...
+- 📫 How to reach me vishnurajcrkl18@gmail.com
 - 😄 Pronouns: ...he/him
 - ⚡ Fun fact: i am not a human
 
